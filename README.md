@@ -1,3 +1,1 @@
-# Onkar-Avhad
-Hello,
-I am onkar avhad                                                                                                       
+# Onkar-Avhad                                                                                                  
